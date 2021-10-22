@@ -1,4 +1,8 @@
-Cracked Ida Pro
+IDA Pro 7.5.2 Cracked
+
+have fun :D
+
+Cracked IDA Products
 -----------------------------------------
 IDA Professional (Windows)
 MIPS Decompiler (Windows)
